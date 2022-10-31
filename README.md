@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Esimorp
+- 👀 I build up systems
+- 📫 dogsii@outlook.com
